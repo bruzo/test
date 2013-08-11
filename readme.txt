@@ -1,0 +1,1 @@
+git sucks maybe not so much as i thought first
